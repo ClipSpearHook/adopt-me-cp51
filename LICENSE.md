@@ -1,4 +1,4 @@
-
+ultimate Scripts for adopt me offers the most advanced adopt me Script, with infinite resources and teleport. Perfect for dominating any match.
 
 
 
